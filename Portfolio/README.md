@@ -1,2 +1,0 @@
-# Portfolio
-Jaspreet Khanuja Portfolio
